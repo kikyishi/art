@@ -1,7 +1,5 @@
 ---
 title: Hand-Drawn Sketches
-tags:
-  - Episodic
 ---
 Recently, I’ve had this persistent itch to draw. Last night, it finally bubbled over—I threw my book aside, grabbed a spare sketchbook I had lying around, and pulled up a tutorial.
 
