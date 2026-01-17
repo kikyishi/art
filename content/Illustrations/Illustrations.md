@@ -7,4 +7,4 @@ Everything changed when I discovered about a manga called ***TGSWIIWAGA*** throu
 
 > Life finds a way (◠‿ < ) —☆
 
-[Dive in](https://kiky.github.io/art/Illustrations).
+[Dive in](https://kikyishi.github.io/art/Illustrations/).

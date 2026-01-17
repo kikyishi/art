@@ -5,4 +5,4 @@ I’m still narrowing down my story ideas, but they all center on the LGBTQ+ com
 
 But let’s be real: if you actually believe they’re the villains, you’re in the wrong place. This site isn’t for you.
 
-[Dive in]().
+[Dive in](https://kikyishi.github.io/art/WebToon-Concepts/).

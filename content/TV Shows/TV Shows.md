@@ -5,4 +5,4 @@ I've always loved how TV shows make character arcs so visible over multiple seas
 
 Seeing villains change is my favorite part of storytelling. TV is the best medium for exploring complex redemption arcs—especially when an antagonist is allowed to grow and do good without being immediately killed off for 'shock value.' It gives the character time to breathe, fail, and eventually find a new purpose.
 
-[Dive in]().
+[Dive in](https://kikyishi.github.io/art/TV-Shows/).

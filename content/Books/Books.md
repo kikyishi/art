@@ -5,4 +5,4 @@ When I was in 7th grade, I broke my tablet, and since my parents couldn't afford
 
 Follow me on [GoodReads](https://www.goodreads.com/user/show/197725478-kiky)!
 
-[Dive in](https://kiky.github.io/art/Books).
+[Dive in](https://kikyishi.github.io/art/Books/).
