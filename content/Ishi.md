@@ -7,10 +7,10 @@ Looking for **Kiki**? **(◕‿◕✿)** While my username varies across plat
     
 - **Community:** [Discord](https://discord.gg/gUtwNECX2) — _The best place to hang out and chat._
     
-- **Gameplays:** [YouTube](https://youtube.com/@bishishi?si=q_7zuAH6Dj4HWCPX) — _Video archives of gaming._
+- **Gameplays:** [YouTube](https://youtube.com/@bishishi) — _Video archives of gaming._
     
 - **Personal:** [Instagram](https://www.instagram.com/_.kikyyyyyyyy._) — _Snapshots of my daily life._
     
-- **The Hub:** [Reddit](https://www.reddit.com/u/uwuishi/s/nTE8ZoxwRV) — _Where I join global discussions._
+- **The Hub:** [Reddit](https://www.reddit.com/u/uwuishi/) — _Where I join global discussions._
     
 - **Source:** [GitHub](https://github.com/kikyishi) — _Site source files._
