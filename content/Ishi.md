@@ -9,4 +9,4 @@ Looking for **Kiki**? **(◕‿◕✿)** While my username varies across plat
     
 - **Personal:** [Instagram](https://www.instagram.com/_.kikyyyyyyyy._) — _Snapshots of my daily life._
     
-- **Dev:** [GitHub](https://github.com/kikyishi) — _Starter packs._
+- **Dev:** [GitHub](https://github.com/kikyishi) — Dev packs._
