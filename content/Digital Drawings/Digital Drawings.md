@@ -7,4 +7,4 @@ Everything changed when I discovered about a game called ***[missed messages.](h
 
 > Life finds a way (◠‿ < ) —☆
 
-[Dive in](https://kiky.github.io/art/Digital-Drawings).
+[Dive in](https://kikyishi.github.io/art/Digital-Drawings).
